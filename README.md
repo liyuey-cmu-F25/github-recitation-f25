@@ -1,2 +1,2 @@
 # github-recitation-f25
-blablabla
+In-n-out has the best burgers!
